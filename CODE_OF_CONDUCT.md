@@ -1,1 +1,1 @@
-"Be respectful and inclusive." 
+"Be respectful and inclusive."
